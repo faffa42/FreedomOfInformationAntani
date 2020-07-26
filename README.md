@@ -62,6 +62,9 @@ Stato:
 - inviata alla Presidenza del Consiglio il 17/04/2020
 - NON PROTOCOLLATA
 
+# Cumulativo
+L'ufficio del ministro per l'Innovazione ha risposto ad alcune delle richieste, con Pec inviata il 15/6/2020. I documenti sono interamente condivisi sul rep, così come promesso (https://twitter.com/faffa42/status/1243527362991489024?s=20)
+
 
 
 
